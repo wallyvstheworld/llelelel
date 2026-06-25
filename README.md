@@ -8,7 +8,7 @@
 Wallace / Wally / Whoever my character is
 </div>
  <div align="center">
-He . They | 16 (07 / 21)
+Eddsworld , Dan VS , etc
 </div>
 <div align="center">
 Multiship + Multifandom
@@ -30,10 +30,12 @@ Multiship + Multifandom
 WHISPER 2 INTERACT ,, IWEC ,, CROWD DISCOMFORT ,, C+H (unless I'm on dni)
 </div>
 <div align="center">
-Tord (EDDSWORLD) and Dan (DAN VS) Fictionkin!! I don't care if doubles interact heh
+ <div align="center">
+Please try to not cover me,, it bothers me a lot.
+</div>
+Tord (EDDSWORLD) and Dan (DAN VS) Fictionkin, I don't care if doubles interact heh
+</div>
 <p align="center">
- <img src="https://media1.tenor.com/m/xK0msBjueD8AAAAC/dan-vs-wedding.gif" alt="Sample Image" width="400"/>
-</p>
  <img src="https://c.tenor.com/xJBi5eAqaowAAAAC/mr-mumbles-dan-vs.gif" alt="Sample Image" width="400"/>
 </p>
 
