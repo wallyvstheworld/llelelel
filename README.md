@@ -22,7 +22,11 @@ Multiship + Multifandom
 
 > [!CAUTION]
 > I have AuDHD, Depression, Anxiety, Social Anxiety, and anger issues. I'm a paranoid person, I tend to panic a lot, and have really bad mental health. Overall, I'm a really sensitive person. Please interact with extreme caution and be patient with me.
-<p align="center">
+
+<img src="https://i.pinimg.com/1200x/ab/42/f0/ab42f00f1ed1b24b48922c0293d092e1.jpg" alt="Alt Text" width="250" height="50"> <img src="https://i.pinimg.com/1200x/86/92/4f/86924f4c013de75071156b9372afd50f.jpg" alt="Alt Text" width="250" height="50"> <img src="https://i.pinimg.com/1200x/86/74/dc/8674dca8c5e3a2e2284678061d6f7e9b.jpg" alt="Alt Text" width="250" height="50"> <img src="https://i.pinimg.com/1200x/9f/f1/b3/9ff1b330adfb21ab875f2f1dba60c74c.jpg" alt="Alt Text" width="250" height="50"> <img src="https://i.pinimg.com/1200x/19/43/b2/1943b270ff5bcd7cd249e220a0dd9cb4.jpg" alt="Alt Text" width="250" height="50"> <img src="https://i.pinimg.com/1200x/6c/6a/45/6c6a45149c23d360cc561b34ff994e2d.jpg" alt="Alt Text" width="250" height="50">
+
+<p align="center"> 
+ 
  <img src="https://media.discordapp.net/attachments/1393806214126899333/1519197816927289344/Untitled241_20260623232844.png?ex=6a3caeb8&is=6a3b5d38&hm=afeae9a48f9473d66834faeea0c1380d41826eec0f03b72aa7cb874377e823f9&=&format=webp&quality=lossless&width=1313&height=196" alt="Sample Image" width="400"/>
 </p>
 
