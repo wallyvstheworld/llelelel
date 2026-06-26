@@ -40,6 +40,6 @@ Please try to not cover me,, it bothers me a lot.
 Tord (EDDSWORLD) and Dan (DAN VS) Fictionkin, I don't care if doubles interact heh
 </div>
 <p align="center">
- <img src="https://c.tenor.com/xJBi5eAqaowAAAAC/mr-mumbles-dan-vs.gif" alt="Sample Image" width="400"/>
+ <img src="https://media.discordapp.net/attachments/1393806214126899333/1519927495078711316/Untitled250_20260625234908.png?ex=6a3f5649&is=6a3e04c9&hm=da99e17b60c26a743d901ff76400ef3fee32257fbb7cf621ecf19a5e1bdffb11&=&format=webp&quality=lossless&width=768&height=576" alt="Sample Image" width="400"/>
 </p>
 
