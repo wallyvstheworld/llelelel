@@ -37,6 +37,9 @@ WHISPER 2 INTERACT ,, IWEC ,, CROWD DISCOMFORT ,, C+H (unless I'm on dni)
  <div align="center">
 Please try to not cover me,, it bothers me a lot.
 </div>
+ <div align="center">
+  i HATEEEEE crowds SO MUCH.
+ </div>
 Tord (EDDSWORLD) and Dan (DAN VS) Fictionkin, I don't care if doubles interact heh
 </div>
 <p align="center">
